@@ -10,7 +10,7 @@ Notre patrie est située dans ce que l'on appelle la Terre Marie Byrd (MBL), sur
 100 Maison Avenue, Orleans, Rougareaux, LUTE Antarctique 10001.
 
 ## Quelle est la population de ce Pays?
-Nous n'avons actuellement qu'une population de dix personnes au Recensement de 2024.
+Nous n'avons actuellement qu'une population de 10 personnes au Recensement de 2024.
 
 ## Comment déménager dans Notre Pays?
 Vous devez envoyer un e-mail à « Immigration@TellurianEmpire.wiki » ou visiter Https://TellurianEmpire.wiki/Services/Immigration/ pour obtenir plus d'informations.
