@@ -22,4 +22,4 @@ Les langues officielles du L'Unis Tellurien Empire sont Anglais, Cajun, Françai
 Toute personne d'origine Cajun, Louisiane Créole, Chitimacha, et Caddo peut se voir automatiquement accorder la Citoyenneté par Droit de Naissance.
 
 ## Quels sont les projets futurs de l'Empire?
-Nous diviserons notre territoire en cinq provinces, chaque province contenant 10 paroisses, elles-mêmes divisées en 150 zones municipales. Nos provinces seront Rougareaux, Ruddock, Frenier, Arcadie et Métairie.
+Nous diviserons notre territoire en cinq provinces, chaque province contenant 10 paroisses, elles-mêmes divisées en 150 zones municipales. Nos provinces seront Rougareaux, Ruddock, Frenier, Arcadie et Métairie. La capitale de notre belle nation sera située dans la ville d'Orléans, qui fera partie de la paroisse Scotia de la province de Rougareaux.
