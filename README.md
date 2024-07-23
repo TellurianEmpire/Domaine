@@ -13,4 +13,4 @@ Our Homeland is located in what's known to most as Marie Byrd Land (MBL) in the 
 We currently only have a population of Ten as of the Census of 2024.
 
 ## How can you move to Our Country?
-You must email "Immigration@TellurianEmpire.wiki" to get more information.
+You must email "Immigration@TellurianEmpire.wiki" or visit Https://TellurianEmpire.wiki/Services/Immigration/ to get more information.
