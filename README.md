@@ -17,3 +17,6 @@ Vous devez envoyer un e-mail à « Immigration@TellurianEmpire.wiki » ou visite
 
 ## Quelles sont les langues officielles du Pays?
 Les langues officielles du L'Empire Unis Tellurien sont Anglais, Cajun, Français Standard, et Espagnol.
+
+#### Avis de Citoyenneté Automatique:
+Toute personne d'origine Cajun, Louisiane Créole, Chitimacha, et Caddo peut se voir automatiquement accorder la Citoyenneté par Droit de Naissance.
