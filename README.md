@@ -2,7 +2,7 @@
 Ceci est le site d'hébergement officiel du le Domaine de L'Unis Tellurien Empire.
 
 ## Qui sommes Nous?
-L'Empire Unis Tellurien est une République Démocratiquement Empirique de gauche tendance politiques.  Loki Mayeaux, Notre Président, aux côtés de T. Mayeaux, Notre Magistrat, fondèrent L'Unis Tellurien Empire le 22 Juillet de l'année 2024.
+L'Empire Unis Tellurien est une Tricaméral République Démocratiquement Empirique de gauche tendance politiques.  Loki Mayeaux, Notre Président, aux côtés de T. Mayeaux, Notre Magistrat, fondèrent L'Unis Tellurien Empire le 22 Juillet de l'année 2024.
 
 ## Où sommes-nous situés?
 Notre patrie est située dans ce que l'on appelle la Terre Marie Byrd (MBL), sur le continent de l'Antarctique.  La superficie totale de Notre Terrestre Nation est d'environ 1,610,000 km².
