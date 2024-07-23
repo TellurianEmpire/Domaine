@@ -16,7 +16,7 @@ Nous n'avons actuellement qu'une population de 10 personnes au Recensement de 20
 Vous devez envoyer un e-mail à « Immigration@TellurianEmpire.wiki » ou visiter Https://TellurianEmpire.wiki/Services/Immigration/ pour obtenir plus d'informations. Veuillez noter que nous n'acceptons PAS les demandes de visa des citoyens des pays suivants: Israël Moderne, Russie, ou la Corée du Nord.
 
 ## Quelles sont les langues officielles du Pays?
-Les langues officielles du L'Empire Unis Tellurien sont Anglais, Cajun, Français Standard, et Espagnol.
+Les langues officielles du L'Unis Tellurien Empire sont Anglais, Cajun, Français Standard, et Espagnol.
 
 #### Avis de Citoyenneté Automatique:
 Toute personne d'origine Cajun, Louisiane Créole, Chitimacha, et Caddo peut se voir automatiquement accorder la Citoyenneté par Droit de Naissance.
