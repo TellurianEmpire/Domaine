@@ -12,5 +12,5 @@ Notre patrie est située dans ce que l'on appelle la Terre Marie Byrd (MBL), sur
 ## Quelle est la population de ce Pays?
 Nous n'avons actuellement qu'une population de dix personnes au Recensement de 2024.
 
-## Comment déménager dans Notre Pays ?
+## Comment déménager dans Notre Pays?
 Vous devez envoyer un e-mail à « Immigration@TellurianEmpire.wiki » ou visiter Https://TellurianEmpire.wiki/Services/Immigration/ pour obtenir plus d'informations.
