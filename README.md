@@ -13,7 +13,7 @@ Notre patrie est située dans ce que l'on appelle la Terre Marie Byrd (MBL), sur
 Nous n'avons actuellement qu'une population de 10 personnes au Recensement de 2024.
 
 ## Comment déménager dans Notre Pays?
-Vous devez envoyer un e-mail à « Immigration@TellurianEmpire.wiki » ou visiter Https://TellurianEmpire.wiki/Services/Immigration/ pour obtenir plus d'informations.
+Vous devez envoyer un e-mail à « Immigration@TellurianEmpire.wiki » ou visiter Https://TellurianEmpire.wiki/Services/Immigration/ pour obtenir plus d'informations. Veuillez noter que nous n'acceptons PAS les demandes de visa des citoyens des pays suivants: Israël Moderne, Russie, ou la Corée du Nord.
 
 ## Quelles sont les langues officielles du Pays?
 Les langues officielles du L'Empire Unis Tellurien sont Anglais, Cajun, Français Standard, et Espagnol.
