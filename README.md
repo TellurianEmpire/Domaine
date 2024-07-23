@@ -14,3 +14,6 @@ Nous n'avons actuellement qu'une population de 10 personnes au Recensement de 20
 
 ## Comment déménager dans Notre Pays?
 Vous devez envoyer un e-mail à « Immigration@TellurianEmpire.wiki » ou visiter Https://TellurianEmpire.wiki/Services/Immigration/ pour obtenir plus d'informations.
+
+## Quelles sont les langues officielles du Pays?
+Les langues officielles du L'Empire Unis Tellurien sont Anglais, Cajun, Français Standard, et Espagnol.
