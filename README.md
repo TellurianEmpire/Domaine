@@ -2,7 +2,7 @@
 Ceci est le site d'hébergement officiel du le Domaine de L'Unis Tellurien Empire.
 
 ## Qui sommes Nous?
-L'Unis Tellurien Empire est une république empirique tricamérale, démocratiquement élue, fondée par Loki Mayeaux, notre président, aux côtés de T. Mayeaux, notre magistrat, le 22 juillet 2024.
+L'Unis Tellurien Empire est une république empirique tricamérale, démocratiquement élue, fondée par Loki Mayeaux, Notre Président, aux côtés de T. Mayeaux, Notre Magistrat, le 22 juillet 2024.
 
 ## Où sommes-nous situés?
 Notre patrie est située dans ce que l'on appelle la Terre Marie Byrd (MBL), sur le continent de l'Antarctique.  La superficie totale de Notre Terrestre Nation est d'environ 1,610,000 km².
@@ -22,3 +22,4 @@ Les langues officielles du L'Unis Tellurien Empire sont Anglais, Cajun, Françai
 Toute personne d'origine Cajun, Louisiane Créole, Chitimacha, et Caddo peut se voir automatiquement accorder la Citoyenneté par Droit de Naissance.
 
 ## Quels sont les projets futurs de l'Empire?
+Nous diviserons notre territoire en cinq provinces, chaque province contenant 10 paroisses, elles-mêmes divisées en 150 zones municipales. Nos provinces seront Rougareaux, Ruddock, Frenier, Arcadie et Métairie.
