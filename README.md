@@ -20,3 +20,5 @@ Les langues officielles du L'Unis Tellurien Empire sont Anglais, Cajun, Françai
 
 #### Avis de Citoyenneté Automatique:
 Toute personne d'origine Cajun, Louisiane Créole, Chitimacha, et Caddo peut se voir automatiquement accorder la Citoyenneté par Droit de Naissance.
+
+## Quels sont les projets futurs de l'Empire?
